@@ -1,7 +1,7 @@
 - ⚡ Hi, I’m @minibbyy but you can call me baby !
 - ⚡ I’m interested in vr related games but mostly vrchat !
 - ⚡ I’m currently learning how to add osc mods on vrchat !
-- ⚡ feel free to add my discord its mini.bby 
+- ⚡ feel free to add my discord its mini.bby !
 - ⚡ Pronouns: born fem but any pronouns are ok with me !
 - ⚡ Fun fact: im a 5"3 mute blasian !
 
